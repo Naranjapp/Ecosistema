@@ -1,2 +1,2 @@
-# Ecosistema-
+# Ecosistema
 Ahora es el momento de empezar a entender como funciona el ecosistema de blockchain aplicado en la economía naranja y/o creativa  el cual dan forma a las operaciones en la era digital implementando estrategias de negocio digitales competitivas para maximizar la eficiencia operativa en sectores como el turismo, la televisión, las artes visuales, la prensa escrita, la publicidad, la arquitectura, los libros, las artes escénicas, los juegos de mesa y vídeo, el cine, la música,  la radio  y toda aquella actividad que culturalmente represente una actividad comercial que pueda ser apoyada digital mente de herramientas apropiadas a este nuevo mundo en el que estamos compartiendo. 
